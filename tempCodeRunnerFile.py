@@ -1,0 +1,1 @@
+https://www.google.com/intl/pt-BR/gmail/about/#inbox
